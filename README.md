@@ -2,7 +2,7 @@
 MX动漫是一个专注于提供高清、无广告、免费在线观看动漫的平台，深受广大动漫爱好者的喜爱。它涵盖了日本动漫、国产动漫、欧美动漫、动漫电影等多种类型的动漫资源，内容丰富多样，更新速度快。MX动漫的界面简洁，操作方便，用户无需注册即可直接观看，同时支持多线路播放，确保观看体验流畅。此外，该网站还提供了追番日历功能，方便用户追踪喜爱的动漫更新。其纯净无广告的环境，让用户可以享受无干扰的观看体验。
 
 <p><strong>一键访问：</strong><a href="https://www.xxsnav.com/sites/1593.html" target="_blank" ><strong>MX动漫最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.xxsnav.com/favorites/dongmanerciyuan" target="_blank" ><strong>动漫二次元资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://dongmandaohang.sodanav.com" target="_blank" ><strong>动漫网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
